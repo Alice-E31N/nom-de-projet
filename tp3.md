@@ -1,3 +1,10 @@
+A-B-C-D-E-F-G
+I wanna send my code to you
+Eight letters is all it takes
+And I'm gonna let you know, oh
+
+--
+
 Yeah, bring it on
 Yeah, yeah
 Look at that 쟤네 봐 그게 네 패착
